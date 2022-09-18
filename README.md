@@ -1,6 +1,6 @@
 
 
-![Web Developer](https://media-exp1.licdn.com/dms/image/C5616AQE6CirY9nnNrg/profile-displaybackgroundimage-shrink_200_800/0/1600684006665?e=1666828800&v=beta&t=FBHfJ7bjcHJXC6U2iTumqA63Irb6Cqd7p5zOmfBBJ0E)
+![Web Developer](https://media-exp1.licdn.com/dms/image/C5616AQE9dODKRLONuA/profile-displaybackgroundimage-shrink_200_800/0/1661671497758?e=1669248000&v=beta&t=9V0bmJDv_1xN-IBGcGxX08iB5OOsNVGT3x0BZe2ciJU)
 
 Software engineer with a proven ability to adapt in both self-starting and collaborative environments while staying focused on achieving high-quality results under strict deadlines. This quality and results-based approach drove me to collaborate with the VP of sales at Squarespace to create a digital marketing campaign that tripled average signups in a single month. Eager to obtain a challenging position at a prestigious company like Dream Version that will expand my learning and build upon my developer skills.
 ### Hello, I'm 'Rashel Hussain'
